@@ -1,0 +1,1 @@
+# hk-style-tw-mahjong-info
